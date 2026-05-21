@@ -1,1 +1,0 @@
-#se tiver aparecendo isso aqui eu sou um genio da boleta
